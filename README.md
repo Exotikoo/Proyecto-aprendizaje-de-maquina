@@ -1,2 +1,2 @@
 # aqui se realizo el trabajo
-diuego gay
+diego gayliz rey de los homosexuales
